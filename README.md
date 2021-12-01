@@ -1,5 +1,3 @@
-# Anil Kumar Maddipatla
-
 <h1 align="center"> 
 	✅ Welcome to Anil Kumar Maddipatla GitHub Account 🚀
 </h1>
